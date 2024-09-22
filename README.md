@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @blackgear777
+- 👋 Hi, I’m a Student enthusiast about learn Cybersecurity
 - 👀 I’m interested in Cybersecurity
 - 🌱 I’m currently learning Ethical HAcking
 - 📫 How to reach me ...www.linkedin.com/in/jaysurya-sonawane-b94a68186
